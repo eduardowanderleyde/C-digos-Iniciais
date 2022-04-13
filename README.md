@@ -1,2 +1,1 @@
-# Curriculum---Eduardo-c-digo
-Curriculum inicial
+https://replit.com/join/fulzsatair-eduardowanderle
